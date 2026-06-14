@@ -2,4 +2,4 @@
 
 [Sign my Ata](https://katsuki-bakugo.atabook.org/)
 
-<img width="202" height="291" alt="image" src="https://github.com/user-attachments/assets/379c9416-c7e5-455f-95dc-0a2818d137fb" />
+<img width="1199" height="672" alt="Untitled195_20260614150938" src="https://github.com/user-attachments/assets/328f0bee-eec0-43d9-bb34-511ff82a9b97" />
